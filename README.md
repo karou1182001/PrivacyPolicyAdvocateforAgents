@@ -1,0 +1,2 @@
+# PrivacyPolicyAdvocateforAgents
+Privady Policy
